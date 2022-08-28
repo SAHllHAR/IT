@@ -4,4 +4,5 @@
 ## yeees
 *6677*
 Ive gone to the US
-Yeah man and started to earn 300.000r/month
+
+* Yeah man and started to earn 300.000r/month
